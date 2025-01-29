@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning B.Tech AIML
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: idk
+- 😄 Pronouns:He/him
 - ⚡ Fun fact: I am very delusional !!
 
 <!---
